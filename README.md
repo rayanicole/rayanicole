@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rayanicole
-- 👀 I’m interested in ENHYPEN ONLY HUHU
+- 👀 I’m interested in ENHYPEN ONLY HUHU edit: SVT WONU AS WELL
 - 🌱 I’m currently learning how to make programs efficiently.
 - 💞️ I’m looking to collaborate with persons who share the same passion as me.
 - 📫 How to reach me: rayanicole.lazo@cit.edu
